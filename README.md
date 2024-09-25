@@ -22,3 +22,15 @@ Tugas
    /home/stD02001/.bash
 
     ![Screenshot from 2024-09-25 20-06-53](https://github.com/user-attachments/assets/05cbf79e-a4ef-493d-      b0db-9dc7d35099b7)
+
+   ![Screenshot from 2024-09-25 20-08-53](https://github.com/user-attachments/assets/1d84f73a-5e61-474c-b93f-adc62e851090)
+
+   ![Screenshot from 2024-09-25 20-12-07](https://github.com/user-attachments/assets/ed20c220-54d6-4563-a121-bf6815556c00)
+
+   ![Screenshot from 2024-09-25 19-46-41](https://github.com/user-attachments/assets/41d61dcd-8925-4655-bb71-dc1f6a54408d)
+
+   ![Screenshot from 2024-09-25 20-14-13](https://github.com/user-attachments/assets/8750d3c0-1c3e-4538-890c-363d3afdaa48)
+
+   ![Screenshot from 2024-09-25 20-16-13](https://github.com/user-attachments/assets/e8a7bb71-3cc9-45b8-b14a-2d656b5c58e3)
+
+   
